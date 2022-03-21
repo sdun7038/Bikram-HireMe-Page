@@ -1,1 +1,0 @@
-# Bikram-HireMe-Page
